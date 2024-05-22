@@ -1,1 +1,1 @@
-Figure skating competitions and performances take place on ice rinks specifically designed and maintained for skating, with smooth, level surfaces and frozen ice.
+Judges award scores based on the quality and difficulty of elements performed, with deductions for mistakes, falls, and errors in execution.
