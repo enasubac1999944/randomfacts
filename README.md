@@ -1,1 +1,1 @@
-Ice dance became an official Olympic event in 1976, featuring couples performing intricate footwork and choreography to music without jumps or throws.
+The Biathlon World Championships have been held annually since 1958, featuring a range of individual and team events for men and women.
