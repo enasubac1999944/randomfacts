@@ -1,1 +1,1 @@
-The Biathlon World Championships have been held annually since 1958, featuring a range of individual and team events for men and women.
+Ski waxing is crucial in biathlon, as properly waxed skis provide optimal glide and grip on varying snow conditions, enhancing performance and efficiency.
