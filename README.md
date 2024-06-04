@@ -1,1 +1,1 @@
-The Biathlon World Championships have been held annually since 1958, featuring a range of individual and team events for men and women.
+The United States has produced numerous world champions in figure skating, including Peggy Fleming, Michelle Kwan, and Scott Hamilton.
