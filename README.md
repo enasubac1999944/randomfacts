@@ -1,1 +1,1 @@
-The United States has produced numerous world champions in figure skating, including Peggy Fleming, Michelle Kwan, and Scott Hamilton.
+The first modern biathlon competition was held in Norway in 1912, featuring a 17-kilometer cross-country ski race with two shooting stages.
